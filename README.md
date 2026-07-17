@@ -1,4 +1,4 @@
-# 👋 Hi, I'm 修 | 你好，我是修
+# 👋 Hi, I'm xiuxxx0 | 你好，我是修
 
 
 🎓 Computer Science and Technology Student  
